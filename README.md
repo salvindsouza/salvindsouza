@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @salvindsouza
 - 👀 I’m someome who loves to learn everything but master none. I would rather surf the sea than dive deep in the ocean unless its a treasure 🏴‍☠️ 💰.
-- 🌱 I’m currently building Skynet.
+- 🌱 I’m currently trying to catch up.
 - 💞️ Open to collaborate.
   
 <!---
